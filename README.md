@@ -119,3 +119,6 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [Rafis Ryuk Edit](https://mizaru.s-ul.eu/TejHx3RT)
 ![](https://camo.githubusercontent.com/77278f887036e67b66b789adc8b34dd294c88ef6/68747470733a2f2f6f73752e7070792e73682f73732f3131373932323333)
+
+# [Seoul Shinobu Edit](https://waa.ai/3YEn)
+![](https://i.imgur.com/undefined.jpg)
