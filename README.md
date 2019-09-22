@@ -11,3 +11,55 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [ Selyu Ryuk Edit](https://snowy.s-ul.eu/v9iKIFOt)
 ![](https://i.imgur.com/cVl0f27.jpg)
+
+# [Da BimBong Makeover](https://mizaruyea.s-ul.eu/xZ6k2F0I)
+![](https://i.imgur.com/CIorEQk.jpg)
+
+# [ddddd RyuK](http://puu.sh/DD1aK/53a5aa7cc4.osk)
+![](https://i.imgur.com/J70nr03.jpg)
+
+# [elohere x Seouless edit](https://shigeskinss.s-ul.eu/eHyLi7MS)
+![](https://i.imgur.com/6oy1bb1.jpg)
+
+! [Ameliorate](https://puu.sh/Dv0g5/2e246b546e.osk)
+![](https://i.imgur.com/FL3cV4o.jpg)
+
+! [Idke 1.2](https://drive.google.com/file/d/1C4N4-lpuakGTJPzKoqYu8QcLK4bLWETu/view)
+![](https://i.imgur.com/ufiMH4z.jpg)
+
+! [Vaxei v1](https://joofixd.s-ul.eu/oDntR2QB)
+![](https://i.imgur.com/LWyYuQ7.jpg)
+
+! [azer8 dawn](http://www.mediafire.com/file/39953ocm4o7zgbe/%2523azer8dawn.osk/file)
+![](https://i.imgur.com/JdrjFek.jpg)
+
+! [Alumetri 2018 01 21](https://circle-people.com/wp-content/Skins/Alumetri/Alumetri%202018-01-21.osk)
+![](https://i.imgur.com/NB9jaPG.jpg)
+
+! [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
+![](https://i.imgur.com/ZWDMswL.jpg)
+
+! [ - 404 SkinNotFound v2](https://www.youtube.com/redirect?event=video_description&redir_token=-FDJ9rwgvsTK5-PU4Th_jk7rY-V8MTU2OTIwMzI4NUAxNTY5MTE2ODg1&q=https%3A%2F%2Finix.s-ul.eu%2F5TvpaGHI&v=-mG2sMSwbr0)
+![](https://i.imgur.com/8bNMlv0.jpg)
+
+! [Kamui0929](http://puu.sh/Dt3QZ/17ed54f84c.osk)
+![](https://i.imgur.com/1TWty56.jpg)
+
+! [Hey DT (Purple Version)](https://puu.sh/Cqn5a/301ad0368c.osk)
+![](https://camo.githubusercontent.com/0ca0f705fb7586d2c4580c6194fa0e55b066b6ae/68747470733a2f2f6f73752e7070792e73682f73732f3132343339393936)
+
+! [Pear](http://www.mediafire.com/file/z7wcn0ka49ri5fu/Pear_Edit.osk/file)
+![](https://i.imgur.com/ACDprtx.jpg)
+
+! [wip skin](http://www.mediafire.com/file/nyd63uwg66lhw1s/%252B-wip_skin.osk/file)
+![](https://i.imgur.com/Ql8pJA4.jpg)
+
+! [AimPixel Mathi v2](http://www.mediafire.com/file/rjw4k53qx8qrufo/-_AimPixelXD_Mathi_v2.osk/file)
+![](https://i.imgur.com/X5eWu81.jpg)
+
+! [Masno Ni v1.1](https://drive.google.com/file/d/1JgYRLm61GA67MVoLrgDmHQqvgQetZS7U/view)
+![](https://i.imgur.com/1tx7Hxb.jpg)
+
+! [YUGEN](http://www.mediafire.com/file/jwwx5uwwl27hqd1/-_YUGEN_-.osk/file)
+![](https://i.imgur.com/czC6HeS.jpg)
+
