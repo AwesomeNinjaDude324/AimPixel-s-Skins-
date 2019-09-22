@@ -63,3 +63,26 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 # [YUGEN](http://www.mediafire.com/file/jwwx5uwwl27hqd1/-_YUGEN_-.osk/file)
 ![](https://i.imgur.com/czC6HeS.jpg)
 
+# [404 Ryan Edit](http://puu.sh/E0DUe/99b7a31d4a.osk)
+![](https://i.imgur.com/1xI9awh.jpg)
+
+# [Selyu v2.3](https://drive.google.com/drive/u/0/folders/1n3YX2rtvJmOvi7wkTWL-yHAMkbP1EipK)
+![](https://i.imgur.com/TkSGezd.jpg)
+
+# [owoTuna 1.2 Selyu](http://www.mediafire.com/file/5b5xu6bkiu903k9/-_%2523_owoTuna_%257B1.2%257D_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
+![](https://i.imgur.com/45Sz2CD.jpg)
+
+# [Seoul 16-9](http://www.mediafire.com/file/i60p5rcptle6cc0/Seoul%252B%252B_16-9.osk/file)
+![](https://i.imgur.com/yhy4gnC.jpg)
+
+# [Morg Green Skin](http://puu.sh/DFB0K/faeb561091.osk)
+![](https://i.imgur.com/lZvWnSi.jpg)
+
+# [Selyu DT v1.2](https://mega.nz/#!R6wTFYLa!xEWGTguDqk3yO4Cn5DkScDh4wVe7Z3bqnn32KaZN0Sg)
+![](https://i.imgur.com/9wxaffc.jpg)
+
+# [Rafis](https://mega.nz/#F!Wq5AkQhJ!2Tp1_9sx07U-HhjRYCleVA)
+![](https://i.imgur.com/ARdkrUD.jpg)
+
+# [Mizaru (new layout)](http://www.mediafire.com/file/w2ge7ktjb9z9014/-_%2521_Mizaru_%2528new_layout%2529.osk/file)
+![](https://i.imgur.com/DuRVq6z.jpg)
