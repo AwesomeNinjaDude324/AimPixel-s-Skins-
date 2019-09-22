@@ -101,3 +101,21 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [hi8jwusvz](https://i.simonrahn.xyz/hi8jwusvz.osk)
 ![](https://i.imgur.com/dGnvabH.jpg)
+
+# [Varvalian Ryan Edit](http://puu.sh/DBGEa/ff1e7599d5.osk)
+![](https://camo.githubusercontent.com/9d3952039a7e965873671809299f4247a3c74f3a/68747470733a2f2f6f73752e7070792e73682f73732f3133333137393733)
+
+# [owotuna ryan blue](http://puu.sh/DMlzy/bd8f5f83b4.osk)
+![](https://camo.githubusercontent.com/3f7e4ade1d23abf6dc1caf7630617d302afafe9a/68747470733a2f2f6f73752e7070792e73682f73732f31333434373930342f61373635)
+
+# [azer8emiliav2](https://mizaru2.s-ul.eu/eOa4OKnK)
+![](https://camo.githubusercontent.com/8bff7c8a490dadc09be8b63f676b18968f1a6ebd/68747470733a2f2f6f73752e7070792e73682f73732f3133313331343337)
+
+# [Azer Emilia 2018](https://snowy.s-ul.eu/0Z8exkBQ)
+![](https://camo.githubusercontent.com/5207f6a7512c037cd6c3ba05e6fd17532ac113f2/68747470733a2f2f6f73752e7070792e73682f73732f3132363031383938)
+
+# [Monko Yaong DT](http://puu.sh/CYbyS/6aef2917b6.osk)
+![](https://camo.githubusercontent.com/e0852dda0ae4523f42e247020a3e10a4c7af13df/68747470733a2f2f6f73752e7070792e73682f73732f3132383437303536)
+
+# [Rafis Ryuk Edit](https://mizaru.s-ul.eu/TejHx3RT)
+![](https://camo.githubusercontent.com/77278f887036e67b66b789adc8b34dd294c88ef6/68747470733a2f2f6f73752e7070792e73682f73732f3131373932323333)
