@@ -39,7 +39,7 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 # [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://i.imgur.com/ZWDMswL.jpg)
 
-! [ - 404 SkinNotFound v2](https://www.youtube.com/redirect?event=video_description&redir_token=-FDJ9rwgvsTK5-PU4Th_jk7rY-V8MTU2OTIwMzI4NUAxNTY5MTE2ODg1&q=https%3A%2F%2Finix.s-ul.eu%2F5TvpaGHI&v=-mG2sMSwbr0)
+# [ - 404 SkinNotFound v2](https://www.youtube.com/redirect?event=video_description&redir_token=-FDJ9rwgvsTK5-PU4Th_jk7rY-V8MTU2OTIwMzI4NUAxNTY5MTE2ODg1&q=https%3A%2F%2Finix.s-ul.eu%2F5TvpaGHI&v=-mG2sMSwbr0)
 ![](https://i.imgur.com/8bNMlv0.jpg)
 
 # [Kamui0929](http://puu.sh/Dt3QZ/17ed54f84c.osk)
