@@ -86,3 +86,18 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [Mizaru (new layout)](http://www.mediafire.com/file/w2ge7ktjb9z9014/-_%2521_Mizaru_%2528new_layout%2529.osk/file)
 ![](https://i.imgur.com/DuRVq6z.jpg)
+
+# [EneREMAKEhalfy (Reimu)](https://mizaru.s-ul.eu/5IxB2vnq)
+![](https://camo.githubusercontent.com/51b064d8b4b2d09e1a4f56b088140133687683e3/68747470733a2f2f6f73752e7070792e73682f73732f3132343339393933)
+
+# [FlyingTuna's Skin Remake](https://mega.nz/#!T7oTSaLL!K21so7E3ymippuvz91mKWiNlxhqQf_XA6pjTdIv3vc8)
+![](https://i.imgur.com/Y904vMa.jpg)
+
+# [Project Liquid Mod](http://www.mediafire.com/file/zkivpfmf2spaltp/Project_Liquid_Mod.osk/file)
+![](https://i.imgur.com/5QvM47Z.jpg)
+
+# [MeguminXD](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?hHxmWYyQ)
+![](https://i.imgur.com/F4tH4nX.jpg)
+
+# [hi8jwusvz](https://i.simonrahn.xyz/hi8jwusvz.osk)
+![](https://i.imgur.com/dGnvabH.jpg)
