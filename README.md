@@ -137,3 +137,15 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [=uwu=](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?tGRhhCxK)
 ![](https://i.imgur.com/qOPvNEj.jpg)
+
+# [Toy but owo](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?tTxEGQTB)
+![](https://i.imgur.com/qPXuF8Q.jpg)
+
+# [Wow Blue](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?VLAWCL7R)
+![](https://i.imgur.com/frPjUVJ.jpg)
+
+# [Pink Unicorn](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?4LpnGCbR)
+![](https://i.imgur.com/dTHneuu.jpg)
+
+# [Skill Re](http://puu.sh/DWnPo/f48fda22c5.osk)
+![](https://i.imgur.com/7gP1t8j.jpg)
