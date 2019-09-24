@@ -122,3 +122,18 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [Seoul Shinobu Edit](https://waa.ai/3YEn)
 ![](https://i.imgur.com/5ecvOUY.jpg)
+
+# [Rafis HDDT](https://waa.ai/3bks)
+![](http://skins.osuck.net/uploads/posts/2018-09/1537866905_ferbeuw.jpg)
+
+# [Prawilosc vJP without followpoints(2)](https://waa.ai/usdb7)
+![](https://i.imgur.com/Oqa7EFv.jpg)
+
+# [- Megumin2k -](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?xfhSFBZK)
+![](https://i.imgur.com/mhmVf8e.jpg)
+
+# [Aireu DT](https://cdn.discordapp.com/attachments/502936270436171806/529872031739674644/-_aireudt.osk)
+![](https://camo.githubusercontent.com/7d1455ce386fd1f700d0d635517125025d12bfbe/68747470733a2f2f6f73752e7070792e73682f73732f3132343237343536)
+
+# [=uwu=](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?tGRhhCxK)
+![https://i.imgur.com/qOPvNEj.jpg]
