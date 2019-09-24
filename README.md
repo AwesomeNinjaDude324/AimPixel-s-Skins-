@@ -149,3 +149,6 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 
 # [Skill Re](http://puu.sh/DWnPo/f48fda22c5.osk)
 ![](https://i.imgur.com/7gP1t8j.jpg)
+
+# [idke 1.0](http://puu.sh/tlAEA/537aa94700.osk)
+![](https://i.imgur.com/C41o0Xp.jpg)
