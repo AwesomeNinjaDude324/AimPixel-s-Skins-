@@ -136,4 +136,4 @@ If a skin isn't here message me on discord on my server https://discord.gg/TQC68
 ![](https://camo.githubusercontent.com/7d1455ce386fd1f700d0d635517125025d12bfbe/68747470733a2f2f6f73752e7070792e73682f73732f3132343237343536)
 
 # [=uwu=](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?tGRhhCxK)
-![https://i.imgur.com/qOPvNEj.jpg]
+![](https://i.imgur.com/qOPvNEj.jpg)
