@@ -1,5 +1,11 @@
 # AimPixel-s-Skins-
 If a skin isn't here message me on discord on my server https://discord.gg/TQC68f6 on the #problems channel
+# [Megumin v3](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?hSQxUYiI)
+![](https://i.imgur.com/TgbK64S.jpg)
+
+# [Dunois+Outcast v2](https://mizaru.s-ul.eu/HUE7yhR9)
+![](https://camo.githubusercontent.com/26d34e80907a745dc6b1251a1c3bd855c3e273d0/68747470733a2f2f6f73752e7070792e73682f73732f3132313734373933)
+
 # [Rafis HDDT (vaxei ver.)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://i.imgur.com/mA7UsGl.jpg)
 
