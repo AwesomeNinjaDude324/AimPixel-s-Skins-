@@ -1,5 +1,8 @@
 # AimPixel-s-Skins-
 If a skin isn't here message me on discord on my server https://discord.gg/TQC68f6 on the #problems channel
+# [#azr8newgreen_edit](https://waa.ai/359L)
+![](https://i.imgur.com/HOcxVAC.jpg)
+
 # [Megumin v3](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?hSQxUYiI)
 ![](https://i.imgur.com/TgbK64S.jpg)
 
