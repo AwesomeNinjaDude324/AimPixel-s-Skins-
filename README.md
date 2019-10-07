@@ -1,5 +1,12 @@
 # AimPixel-s-Skins-
 If a skin isn't here message me on discord on my server https://discord.gg/TQC68f6 on the #problems channel
+# [Azerite Skin Modif](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?1WYhkKwR)
+![](https://i.imgur.com/PWGWSQg.jpg)
+
+# [Tranquil Sublimity](http://puu.sh/D5qzk/35412b99f8.osk)
+![](https://i.imgur.com/ZoIeNFE.jpg)
+
+
 # [Skill+Re](http://puu.sh/DWnPo/f48fda22c5.osk)
 ![](https://camo.githubusercontent.com/652497c35f6c2027deb7fb971f78820e681200b9/68747470733a2f2f7075752e73682f44576e4c622f613737313637353138342e6a7067)
 
