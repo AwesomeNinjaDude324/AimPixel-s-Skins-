@@ -1,5 +1,11 @@
 # AimPixel-s-Skins-
 If a skin isn't here message me on discord on my server https://discord.gg/TQC68f6 on the #problems channel
+# [Mathi Ensalda (other cursor)](http://download1346.mediafire.com/2nc3os12mdfg/mggkhdggploj2uk/Mathi+ensalada+%28other+cursor%29.osk)
+![](https://i.imgur.com/QGl4HTw.jpg)
+
+# [Donkey+Kong](https://bit.ly/2Fs95MY)
+![](https://i.imgur.com/O30nDph.jpg)
+
 # [Azerite Skin Modif](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?1WYhkKwR)
 ![](https://i.imgur.com/PWGWSQg.jpg)
 
