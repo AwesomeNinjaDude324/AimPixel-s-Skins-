@@ -1,5 +1,8 @@
 # AimPixel Skins
 If a skin isn't here message me on discord on my server https://discord.gg/TQC68f6 on the #problems channel
+# [(owo)](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?1SIzwDLZ)
+![](https://i.imgur.com/GvnkEHK.jpg)
+
 # [Selyu AimPixel Edit](https://waa.ai/O3ta)
 ![](https://i.imgur.com/Wge7IME.jpg)
 
