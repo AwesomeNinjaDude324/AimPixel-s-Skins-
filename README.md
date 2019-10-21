@@ -1,5 +1,8 @@
 # AimPixel Skins
 If a skin isn't here message me on discord on my server https://discord.gg/TQC68f6 on the #problems channel
+# [RedPixel Skin](https://puu.sh/DatIx.osk)
+![](https://i.imgur.com/7z6JvJw.jpg)
+
 # [(owo)](https://mega.nz/#F!ZTQz0QbB!een48fhB_Y-HDRoCf4Ve6Q?1SIzwDLZ)
 ![](https://i.imgur.com/GvnkEHK.jpg)
 
